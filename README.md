@@ -1,1 +1,1 @@
-# Dera
+# Dera Radha Soami
